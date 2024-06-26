@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @thaimy1614 Duong Quoc Thai
+- 👀 I’m interested in Jav....a 
+- 📫 [How to reach me ...](https://www.facebook.com/dqt.16.10)
+- 😄 Fun fact: Life's too short
